@@ -1,1 +1,0 @@
-# Ulam-Ideas-Test-App---Privacy-Policy
